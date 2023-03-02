@@ -1,1 +1,1 @@
-# Modulo-5 Individual
+# Modulo 5 Individual
